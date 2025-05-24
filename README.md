@@ -1,4 +1,4 @@
-# Argo Privacy Policy
+# Astute Privacy Policy
 
 ### What data does Argo collect ?
 
